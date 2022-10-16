@@ -1,2 +1,2 @@
 # circle-time
-Pre-K Circle Time
+Pre-K Circle Time Activities
